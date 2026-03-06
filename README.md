@@ -1,4 +1,4 @@
-Varun Chaturmutha \newline
+Varun Chaturmutha
 
 PhD Candidate in Astronomy
 
